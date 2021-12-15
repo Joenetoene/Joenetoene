@@ -2,7 +2,7 @@
 
 I'm (a) ...
 
-- 🎓 Lifelong learner & Master of Industrial Engineering and Business
+- 🎓 Lifelong learner & Master of Industrial Engineering and Management
 
 - 🔍 Young Professional interested in Data Analysis, Finance, and Process Optimization
 
