@@ -1,4 +1,4 @@
-👋 Hi, I’m @Joenetoene. Welcome to my Github profile :)
+👋 Hi, I’m @Joenetoene. Welcome to my Github profile.
 
 I'm (a) ...
 
