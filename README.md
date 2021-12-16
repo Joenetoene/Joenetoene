@@ -14,7 +14,7 @@ I'm (a) ...
 
 - 💻 Experienced in Excel VBA | Python | SQL | Tableau | SAP | Kanban
 
-- 🏄 Into Surfing | Cycling | Beach Volleyball | Global Politics | History | Cultures
+- 🏄 Interested in Surfing | Cycling | Beach Volleyball | Global Politics | History | Cultures
 
 - https://www.linkedin.com/in/jonathan-ulrich/
 
